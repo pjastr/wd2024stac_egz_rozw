@@ -1,0 +1,1 @@
+# wd2024stac_egz_rozw
